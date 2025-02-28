@@ -1,4 +1,4 @@
-hi, i’m @sprawlreject but you probably know me by a different name irl
+hi
 
 majoring in Translation Studies & Psychology, minoring in IT
 
